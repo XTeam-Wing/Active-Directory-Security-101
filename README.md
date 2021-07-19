@@ -1,3 +1,4 @@
+[网页版本点我,阅读体验更佳](https://redteaming.net/pages/4e65fc/)
 <a name="DEj75"></a>
 ## 前置知识
 刚入门的小伙伴可以去京东或者淘宝购买这本书看一遍
